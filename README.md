@@ -5,7 +5,7 @@ Universidade de Brasília
 Faculdade UnB Planaltina - FUP
 Licenciatura em Matemática
 Professor (a) Dr.(a) orientador(a): 
-Clayton Ferreira dos Anjos Matricula: 222030718
+Clayton Ferreira dos Anjos Matricula 
 
 
 
